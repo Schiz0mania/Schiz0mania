@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Schiz0mania
-- 👀 I’m interested in learning
+- 👀 I’m not so interested in learning
 
 
 <!---
